@@ -3,7 +3,7 @@
 皮皮蛋影视是一个提供全网影视剧免费在线观看的平台，以丰富的影视资源和良好的用户体验受到用户喜爱。该网站涵盖了国内外的电影、电视剧、动漫、综艺、纪录片等多种类型的影视作品，累计更新约有5万部。其界面简洁，操作便捷，致力于为用户提供高清、蓝光影视随心看的优质服务。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14402.html" target="_blank" ><strong>皮皮蛋影视最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
